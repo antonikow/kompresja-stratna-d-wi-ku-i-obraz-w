@@ -1,1 +1,1 @@
-# kompresja-stratna-d-wi-ku-i-obraz-w
+# kompresja-stratna-dzwieku-i-obrazow
