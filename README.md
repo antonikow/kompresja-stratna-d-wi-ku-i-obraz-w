@@ -1,0 +1,1 @@
+# kompresja-stratna-d-wi-ku-i-obraz-w
